@@ -1,1 +1,1 @@
-# A-way-to-learn-fast, jonny jonny
+# A-way-to-learn-fasjonn
