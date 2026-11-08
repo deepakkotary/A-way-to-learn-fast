@@ -1,1 +1,1 @@
-# A-way-to-learn-fast
+A way to learn fast.html
