@@ -1,1 +1,1 @@
-# A-way-to-learn-fasjonn
+# A-way-to-learn-fast
